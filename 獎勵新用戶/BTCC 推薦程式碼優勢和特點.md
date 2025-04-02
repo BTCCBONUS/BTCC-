@@ -2,6 +2,7 @@
 <h2>介紹</h2>
 <p>BTCC 是領先的加密貨幣交易所之一，提供一個有利可圖的推薦計劃，使用戶能夠最大化交易收益。無論您是尋找 <strong>BTCC 註冊獎勵</strong> 的新用戶，還是希望獲得 <strong>BTCC 推薦獎金</strong> 的資深交易者，使用 <strong>BTCC 推薦碼</strong> 都能為您帶來豐厚的獎勵。</p>
 <p>在本指南中，我們將解釋如何使用 <strong>BTCC 優惠碼</strong>，<strong>BTCC 折扣碼</strong> 的好處，以及如何獲得最高 <strong>11,000 USDT</strong> 的獎勵與 <strong>50% 交易手續費折扣</strong>。</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>什麼是 BTCC 推薦碼？</h2>
 <p><strong>BTCC 推薦碼</strong> 是一組專屬的推廣代碼，允許用戶在註冊或邀請他人加入平台時獲得 <strong>BTCC 交易獎勵</strong>。透過輸入 <strong>BTCC 優惠碼</strong>，用戶可享受獨家獎勵、更低的交易手續費，以及其他額外好處。</p>
