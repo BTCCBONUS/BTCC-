@@ -2,6 +2,7 @@
 
 <p><strong>簡介</strong></p>
 <p>BTCC 是領先的加密貨幣交易所之一，為用戶提供穩健的交易平台，支持多種數字資產。隨著加密市場的發展，BTCC 推出了具有競爭力的費用結構和吸引人的折扣計劃，以確保用戶能夠有效交易並降低成本。對於希望節省成本的用戶來說，最有價值的工具之一就是 <strong>BTCC 推薦碼</strong>。本文將介紹如何使用 <strong>BTCC 推薦碼</strong>、<strong>BTCC 優惠碼</strong> 和 <strong>BTCC 折扣碼</strong> 來解鎖交易獎勵和獨家獎金，如 <strong>BTCC 註冊獎勵</strong> 和 50% 交易費折扣。</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>了解 BTCC 費用結構</h2>
 <p><strong>現貨交易費用</strong></p>
