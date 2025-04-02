@@ -3,6 +3,7 @@
 <p>在加密貨幣交易的世界中，選擇合適的交易所可能會帶來巨大的差異。其中，BTCC 是一個享譽全球的加密貨幣交易所，提供高級功能、安全交易及具競爭力的手續費。為了進一步提升您的交易體驗，BTCC 提供了豐厚的 <strong>BTCC 推薦碼</strong>、<strong>BTCC 註冊獎勵</strong> 和 <strong>BTCC 推薦獎金</strong> 給新用戶。當您使用 <strong>BTCC 推薦碼「BTCCBONUS」</strong> 註冊時，您將能解鎖多種精彩福利，包括高達 <strong>11,000 USDT</strong> 的獎勵及 <strong>50% 交易手續費折扣</strong>。</p>
 
 <p>本指南將逐步引導您如何使用 <strong>BTCC 優惠碼</strong> 或 <strong>BTCC 折扣碼</strong> 註冊 BTCC 帳戶，並獲取 <strong>BTCC 交易獎勵</strong> 及其他相關優惠。無論您是新用戶，或是希望在 <strong>2025 年</strong> 優化您的交易體驗，請按照本指南來最大化您的 BTCC 交易優勢。</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>為何使用 BTCC 推薦碼「BTCCBONUS」？</h2>
 
