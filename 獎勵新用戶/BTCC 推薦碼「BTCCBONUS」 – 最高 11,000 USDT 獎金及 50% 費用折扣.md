@@ -2,6 +2,7 @@
 
 <h2>介紹</h2>
 <p>BTCC 作為歷史最悠久的加密貨幣交易所之一，透過 <strong>BTCC推薦碼</strong> 計畫為交易者提供豐厚獎勵。如果您希望最大化交易優勢，<strong>BTCC 註冊獎勵</strong> 和 <strong>BTCC 優惠碼</strong> 2025 能夠為您帶來可觀的折扣。不論您是 <strong>新用戶</strong> 還是現有交易者，最新的 <strong>BTCC折扣碼</strong> 可確保您獲得吸引人的 <strong>交易獎勵</strong>。本指南將詳細介紹 <strong>BTCC推薦獎勵</strong> 的內容、如何領取以及其對加密貨幣交易者的好處。</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>什麼是 2025 年 BTCC 推薦碼？</h2>
 <p>2025 年的 <strong>BTCC 推薦碼</strong> 是 <strong>BTCCBONUS</strong>，可為用戶提供豐厚的獎勵，當他們 <strong>註冊</strong> 並開始交易時，能夠解鎖獨家折扣與獎勵。</p>
