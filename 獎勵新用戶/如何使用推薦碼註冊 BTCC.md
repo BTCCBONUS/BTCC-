@@ -4,6 +4,7 @@
 <section>
 <p>BTCC (Bitcoin Trading Company) 是領先的加密貨幣交易所之一，為用戶提供多種交易選項、高安全性及具競爭力的費用。如果您想加入 BTCC，使用 <strong>BTCC 推薦碼</strong> 註冊是一個極佳的方式，幫助您獲得更多優惠。本指南將引導您一步步完成註冊過程，並使用 <strong>推薦碼</strong> 或 <strong>優惠碼</strong> 來解鎖高達 <strong>11,000 USDT</strong> 的獎勵、<strong>50% 交易手續費折扣</strong>等福利。</p>
 </section>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <section>
 <h2>為什麼要使用 BTCC 推薦碼？</h2>
