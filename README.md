@@ -1,6 +1,8 @@
 <h1>BTCC 推薦碼 'BTCCBONUS' – 高達 11,000 USDT 獎勵 & 50% 手續費折扣</h1>
 <h2>介紹</h2>
 <p>正在尋找最佳方式來最大化您的 BTCC 交易獎勵嗎？使用最新的 BTCC 推薦碼（促銷代碼或折扣碼），新用戶可獲得高達 11,000 USDT 的註冊獎勵，並享有 50% 交易手續費折扣。無論您是交易新手還是經驗豐富的交易者，使用 BTCC 推薦獎勵都能享受最佳交易優勢。</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>BTCC 註冊獎勵高達 11,000 USDT</h2>
 <h3>BTCC 推薦碼 - BTCCBONUS</h3>
 <table border="1">
